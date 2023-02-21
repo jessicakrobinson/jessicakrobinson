@@ -1,5 +1,5 @@
 # Hi there 👋
-- Product Counsel supporting ECOSS on the CELA team
+- Product Counsel supporting ECOSS, GitHub Next, Core Productivity, Research & Strategy, Billing & Usage on the CELA team
 - 🌱 I’m currently learning how to market my children's book
 - 👯 I’m looking to collaborate on ANYTHING. #keeplisteningkeeplearning
 - 😄 Pronouns: she/her
